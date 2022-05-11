@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @QasimMahmood98
 - 👀 I’m interested in making things
-- 🌱 I’m currently learning how to become famous and rich :-)
+- 🌱 I’m currently learning how to become a better coder
 - 💞️ I’m looking to collaborate with multiple companies and different people.
 - 📫 How to reach me? My Email Qasimmahmood189@gmail.com
 
